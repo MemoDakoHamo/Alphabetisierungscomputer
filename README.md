@@ -1,0 +1,2 @@
+# Alphabetisierungscomputer
+Minen Bitcoins
